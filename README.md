@@ -4,25 +4,25 @@
 · · ────── ꒰ঌ·✦·໒꒱ ────── · ·
 
 
-## [straw](https://ibyprofens.straw.page/)$\color{bubblegumpink}{\text{This is bubblegum pink text!}}$
+## [straw](https://ibyprofens.straw.page/)
 
 
 · · ────── ꒰ঌ·✦·໒꒱ ────── · ·
 
 
-## [ata](https://ochakouraravity.atabook.org/)$\color{bubblegumtint}{\text{This is bubblegum tint text!}}$
+## [ata](https://ochakouraravity.atabook.org/)
 
 
 · · ────── ꒰ঌ·✦·໒꒱ ────── · ·
 
 
-## [prns](https://pronouns.cc/@ochakouraravity)$\color{babypink}{\text{This is baby pink text!}}$
+## [prns](https://pronouns.cc/@ochakouraravity)
 
 
 · · ────── ꒰ঌ·✦·໒꒱ ────── · ·
 
 
-## [rentry](https://rentry.co/floatinguravity)$\color{pastelpink}{\text{This is pastel pink text!}}$ <sup>tysm @enkandikka for making my rentry for me..awhh..ahwhawh thank you so much!</sup>
+## [rentry](https://rentry.co/floatinguravity) <sup>tysm @enkandikka for making my rentry for me..awhh..ahwhawh thank you so much!</sup>
 
 
 <img width="1271" height="81" alt="Untitled904-20240104205329" src="https://github.com/user-attachments/assets/c79ebfd7-7f47-4644-9b56-90e4cbc190e1" />
@@ -37,8 +37,8 @@
 <img width="1280" height="80" alt="Untitled795" src="https://github.com/user-attachments/assets/30ddf2ef-637d-4cb1-aab6-5be7b9868edf" />
 
 
-## my wonderful friends..;$\color{softblush}{\text{This is soft blush text!}}$
-## @enkandikka , @BubblegumTart , @SansyFresh$\color{verypaleblush}{\text{This is vary pale blush text!}}$
+## my wonderful friends..;
+## @enkandikka , @BubblegumTart , @SansyFresh
 
 
 <img width="1280" height="80" alt="Untitled795" src="https://github.com/user-attachments/assets/0ede3a19-f18c-47db-8a2c-806c9771d56e" />
