@@ -14,7 +14,7 @@
 
 ⸝
 
-, _**[rentry](https://rentry.co/floatinguravity)**_ <sup>$\color{#fda8bf}{\texttt{tysm}}$ _**[@enkandikka](https://github.com/enkandikka)**_ $\color{#fda8bf}{\texttt{for making my rentry for me..awhh..ahwhawh thank you so much!)}}$</sup>
+, _**[rentry](https://rentry.co/floatinguravity)**_ <sup>$\color{#fda8bf}{\texttt{(tysm}}$ _**[@enkandikka](https://github.com/enkandikka)**_ $\color{#fda8bf}{\texttt{for making my rentry for me..awhh..ahwhawh thank you so much!)}}$</sup>
 
 # · · ────── ꒰ঌ·✦·໒꒱ ────── · ·
 
