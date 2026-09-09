@@ -1,3 +1,5 @@
+<img width="9000" height="354" alt="khofsy" src="https://github.com/user-attachments/assets/c03a2b77-e52d-49f2-876a-ca0cef5f5078" />
+
 ## [straw](https://ibyprofens.straw.page/)
 
 
@@ -15,3 +17,4 @@
 
 
 ## $\color{#ff5c89}{\texttt{my wonderful friends;}}$ <sup>[@enkandikka](https://github.com/enkandikka) $\color{#ff5c89}{\texttt{,}}$ [@BubblegumTart](https://github.com/BubblegumTart) $\color{#ff5c89}{\texttt{,}}$ [@SansyFresh](https://github.com/SansyFresh)</sup>
+<img width="9000" height="354" alt="lzdncj" src="https://github.com/user-attachments/assets/ea458d9c-b125-43c9-879d-386e6f409813" />
