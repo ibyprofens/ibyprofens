@@ -14,7 +14,7 @@
 
 ⸝
 
-, _**[rentry](https://rentry.co/floatinguravity)**_ _**<sup>$\color{#fda8bf}{\texttt{(tysm}}$**_ _**[@enkandikka](https://github.com/enkandikka)**_ _**$\color{#fda8bf}{\texttt{for making my rentry for me..awhh..ahwhawh thank you so much!)}}$</sup>**_
+, _**[rentry](https://rentry.co/floatinguravity)**_ <sup>$\color{#fda8bf}{\texttt{_**(tysm**_}}$ _**[@enkandikka](https://github.com/enkandikka)**_ $\color{#fda8bf}{\texttt{_**for making my rentry for me..awhh..ahwhawh thank you so much!)**_}}$</sup>
 
 # · · ────── ꒰ঌ·✦·໒꒱ ────── · ·
 
@@ -26,4 +26,4 @@
 
 ⸝
 
-, _**$\color{#ff5c89}{\texttt{my wonderful friends;}}$**_ _**<sup>[@enkandikka](https://github.com/enkandikka)**_ _**$\color{#ff5c89}{\texttt{,}}$**_ _**[@BubblegumTart](https://github.com/BubblegumTart)**_ _**$\color{#ff5c89}{\texttt{,}}$**_ _**[@SansyFresh](https://github.com/SansyFresh)</sup>**_
+, $\color{#ff5c89}{\texttt{_**my wonderful friends;**_}}$ <sup>[@enkandikka](https://github.com/enkandikka) $\color{#ff5c89}{\texttt{_**,**_}}$ _**[@BubblegumTart](https://github.com/BubblegumTart)**_ $\color{#ff5c89}{\texttt{_**,**_}}$ _**[@SansyFresh](https://github.com/SansyFresh)**_</sup>
