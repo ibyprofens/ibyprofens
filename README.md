@@ -1,3 +1,5 @@
+<img width="736" height="736" alt="b3c8471a7cc89019e5ca794650e3b24d" src="https://github.com/user-attachments/assets/a5889085-2012-4182-ba60-1808ae1abc83" />
+
 # · · ────── ꒰ঌ·✦·໒꒱ ────── · ·
 
 ⸝
