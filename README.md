@@ -7,7 +7,7 @@
 ## [prns](https://pronouns.cc/@ochakouraravity)
 
 
-## [rentry](https://rentry.co/floatinguravity) $\color{#fda8bf}{\texttt{(tysm @enkandikka for making my rentry for me..awhh..ahwhawh thank you so much!)}}$
+## [rentry](https://rentry.co/floatinguravity) $\color{#fda8bf}{\texttt{(tysm [@enkandikka](https://github.com/enkandikka) for making my rentry for me..awhh..ahwhawh thank you so much!)}}$
 
 
 ## $\color{#fb8cac}{\texttt{i'm ALWAYS up for c+h, UNLESS i have dniuf/dniuc in my name.}}$ $\color{#fb8cac}{\texttt{if you want to say hi, WHISPER ME, as i am usually always offtab.}}$ $\color{#fb8cac}{\texttt{if i'm sitting or talking to a friend, do not be afraid to join the conversation or sit near us!}}$ $\color{#fb8cac}{\texttt{ i'm sure they wouldn't mind.}}$
