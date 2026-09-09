@@ -13,4 +13,4 @@
 ## i'm ALWAYS up for c+h, UNLESS i have dniuf/dniuc in my name. if you want to say hi, WHISPER ME, as i am usually always offtab. if I'm sitting or talking to a friend, do not be afraid to join the conversation or sit near us! i'm sure they wouldn't mind.
 
 
-## my wonderful friends..; ### @enkandikka , @BubblegumTart , @SansyFresh
+## my wonderful friends ; <sup>@enkandikka , @BubblegumTart , @SansyFresh</sup>
