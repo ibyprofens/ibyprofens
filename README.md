@@ -1,7 +1,10 @@
 <img width="9000" height="354" alt="khofsy" src="https://github.com/user-attachments/assets/c03a2b77-e52d-49f2-876a-ca0cef5f5078" />
 [straw](https://ibyprofens.straw.page/)
+
 [ata](https://ochakouraravity.atabook.org/)
+
 [prns](https://pronouns.cc/@ochakouraravity)
+
 [rentry](https://rentry.co/floatinguravity) <sup>$\color{#fda8bf}{\texttt{(tysm}}$ [@enkandikka](https://github.com/enkandikka) $\color{#fda8bf}{\texttt{for making my rentry for me..awhh..ahwhawh thank you so much!)}}$</sup>
 
 
