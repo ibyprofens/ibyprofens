@@ -1,3 +1,6 @@
+<img src="blob:chrome-untrusted://media-app/53fa6d73-a9ef-415c-8ada-da2073e48047" alt="b3c8471a7cc89019e5ca794650e3b24d-removebg-preview.png"/><img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/eecb7ffc-6f3d-4b53-b7f2-406a5602eb77" />
+
+
 # · · ────── ꒰ঌ·✦·໒꒱ ────── · ·
 
 ⸝
