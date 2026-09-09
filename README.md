@@ -1,5 +1,3 @@
-https://file.garden/ZhR7DLcFMh_Z3OTH/togachako/uraraka_header
-
 # · · ────── ꒰ঌ·✦·໒꒱ ────── · ·
 
 ⸝
