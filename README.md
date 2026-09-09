@@ -2,19 +2,19 @@
 
 ⸝
 
-, [straw](https://ibyprofens.straw.page/)
+, _**[straw](https://ibyprofens.straw.page/)**_
 
 ⸝
 
-, [ata](https://ochakouraravity.atabook.org/)
+, _**[ata](https://ochakouraravity.atabook.org/)**_
 
 ⸝
 
-, [prns](https://pronouns.cc/@ochakouraravity)
+, _**[prns](https://pronouns.cc/@ochakouraravity)**_
 
 ⸝
 
-, [rentry](https://rentry.co/floatinguravity) <sup>$\color{#fda8bf}{\texttt{(tysm}}$ [@enkandikka](https://github.com/enkandikka) $\color{#fda8bf}{\texttt{for making my rentry for me..awhh..ahwhawh thank you so much!)}}$</sup>
+, _**[rentry](https://rentry.co/floatinguravity)**_ <sup>$\color{#fda8bf}{\texttt{(tysm}}$ [@enkandikka](https://github.com/enkandikka) $\color{#fda8bf}{\texttt{for making my rentry for me..awhh..ahwhawh thank you so much!)}}$</sup>
 
 # · · ────── ꒰ঌ·✦·໒꒱ ────── · ·
 
