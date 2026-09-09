@@ -1,25 +1,13 @@
 <img width="1271" height="81" alt="Untitled904-20240104205249" src="https://github.com/user-attachments/assets/9b934957-4223-4f7f-ad04-b4cc7d83a0e2" />
 
 
-· · ────── ꒰ঌ·✦·໒꒱ ────── · ·
-
-
 ## [straw](https://ibyprofens.straw.page/)
-
-
-· · ────── ꒰ঌ·✦·໒꒱ ────── · ·
 
 
 ## [ata](https://ochakouraravity.atabook.org/)
 
 
-· · ────── ꒰ঌ·✦·໒꒱ ────── · ·
-
-
 ## [prns](https://pronouns.cc/@ochakouraravity)
-
-
-· · ────── ꒰ঌ·✦·໒꒱ ────── · ·
 
 
 ## [rentry](https://rentry.co/floatinguravity) <sup>tysm @enkandikka for making my rentry for me..awhh..ahwhawh thank you so much!</sup>
