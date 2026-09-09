@@ -14,4 +14,4 @@
 
 
 
-## $\color{#ff5c89}{\texttt{my wonderful friends;}}$ <sup>@enkandikka , @BubblegumTart , @SansyFresh</sup>
+## $\color{#ff5c89}{\texttt{my wonderful friends;}}$ <sup>[@enkandikka](https://github.com/enkandikka) , [@BubblegumTart](https://github.com/BubblegumTart) , [@SansyFresh](https://github.com/SansyFresh)</sup>
